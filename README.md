@@ -1,4 +1,3 @@
-- 👋 Hi, I’m songnian 
 - 📫 How to reach me ? my email : songnianchen.work@gmail.com
 
 
